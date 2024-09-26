@@ -4,7 +4,7 @@
 
 - My name is ✩₊˚. **Julia** ⋆☾⋆⁺₊✧
 - I'm a student at [alura](https://www.alura.com.br)
-
+- I'm here to develop projects
   ⠀
 ⠀⠀⠀
 ⠀⠀꒷︶꒷꒥꒷‧₊˚꒷︶꒷꒥꒷‧₊˚
